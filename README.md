@@ -6,6 +6,4 @@ You can use them for free. I would be grateful if you leave a link to the downlo
 
 ![Image description](https://valorantstats.one/img/abilities/abilities-preview.jpg)
 
-More icons coming soon.
-
 
